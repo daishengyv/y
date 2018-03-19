@@ -1,3 +1,3 @@
 # D
 
-https://daishengyv.github.io/D/
+https://daishengyv.github.io/yy/
